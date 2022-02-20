@@ -4,3 +4,4 @@ kaige handsome
 kaige cool
 kaige very good
 kaige very ncie
+kaige very cool
